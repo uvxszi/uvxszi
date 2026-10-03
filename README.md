@@ -1,2 +1,9 @@
-## Hi, I am uvx.
-More to add here later.
+## Hi, I am uvx, or uvxszi on most platforms
+
+### About me
+
+### Projects & Works
+
+### socials
+
+### Contact
