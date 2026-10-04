@@ -4,7 +4,7 @@
 
 ### Projects & Works
 
-### socials
+### Socials
 
 ### Contact
 
