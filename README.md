@@ -7,3 +7,5 @@
 ### socials
 
 ### Contact
+
+- Discord: u.v.x
