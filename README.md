@@ -1,10 +1,16 @@
-## Hi, I am uvx, or uvxszi on most platforms
+## Hi, I am uvxszi on most platforms
 
 ### About me
 
+I like making stuff sometimes.
+
 ### Projects & Works
 
+To be listed.
+
 ### Socials
+
+To be listed.
 
 ### Contact
 
