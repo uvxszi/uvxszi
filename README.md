@@ -15,3 +15,6 @@ To be listed.
 ### Contact
 
 - Discord: u.v.x
+
+
+Lots of ideas.
