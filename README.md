@@ -2,7 +2,7 @@
 
 ### About me
 
-I like making stuff sometimes.
+I like making stuff. 
 
 ### Projects & Works
 
